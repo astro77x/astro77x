@@ -1,3 +1,3 @@
-pro prei de firu firu e clash royale 🙅‍♂️ 
-SOY O MILHOR EM FORTINITE JA MATEI O LUSER FRUTI NO FORTINETI EM  2018 
-SHILDI E PROS FRACO 
+.pro prei de firu firu e clash royale 🙅‍♂️ 
+.SOY O MILHOR EM FORTINITE JA MATEI O LUSER FRUTI NO FORTINETI EM  2018 
+.SHILDI E PROS FRACO 
